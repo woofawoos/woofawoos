@@ -2,7 +2,7 @@
 
 ![i am not associated with inugami korone, i just like her design!](https://files.catbox.moe/d9obbc.png)
 
-### <p align=center> LYCAN | ANY/ALL | ADULT</p>
+### <p align=center> AWOO | ANY/ALL | ADULT</p>
 
 <p align=center>
   i mostly play ponytown <b>muted</b> on a secondary monitor so i may accidentally ignore interactions. i will block/hide you if i don't want you to interact with me. usually sitting w/ my owner around spawn or docks. 
