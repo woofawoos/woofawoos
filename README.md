@@ -38,7 +38,7 @@
         ![espurr](https://files.catbox.moe/r1gsru.png)
           ![pastel_pink_glitter](https://files.catbox.moe/nhvnfs.gif)
             ![sylveon1](https://files.catbox.moe/br5udb.gif)
-              ![sylveon2](https://files.catbox.moe/xealsm.gif)
+              ![sylveon2](https://files.catbox.moe/uwgvo8.gif)
             ![anime_pastel_cherryblossoms](https://files.catbox.moe/1nhgkv.gif)
           ![ginga](https://files.catbox.moe/g8capd.png)
         ![punchy](https://files.catbox.moe/fq82my.png)
