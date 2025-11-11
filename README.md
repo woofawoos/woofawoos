@@ -11,7 +11,7 @@
 ---
 
 <p align=center> 
-  <b>i am normal about</b> <ins>HOUSE MD</ins>, machine girl, BIGTOP BURGER, jujutsu kaisen, <ins>COMMERCIAL AVIATION</ins>, seals (kroshik & yo-chan!), <ins>MORAL OREL</ins>, mlp:fim, SEVERANCE, succession, pathologic, ONEYPLAYS, h.r giger, game of thrones, <ins>DEATH GRIPS</ins>, himekaji/agejo/shoujo fashion, all tomorrows, vtubers (korone & snuffy), resident evil, POKEMON, biology, daft punk, terraria, highcraft & HETALIA
+  <b>i am normal about</b> <ins>HOUSE MD</ins>, machine girl, wildlife conservation, BIGTOP BURGER, jujutsu kaisen, <ins>COMMERCIAL AVIATION</ins>, seals (kroshik & yo-chan!), <ins>MORAL OREL</ins>, mlp:fim, SEVERANCE, succession, pathologic, ONEYPLAYS, h.r giger, game of thrones, <ins>DEATH GRIPS</ins>, himekaji/agejo/shoujo fashion, all tomorrows, vtubers (korone & snuffy), resident evil, POKEMON, biology, daft punk, PORTAL, terraria, highcraft & HETALIA
 </p>
 
 <p align=center> 
