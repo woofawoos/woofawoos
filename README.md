@@ -23,7 +23,7 @@
 </p>
 
 <p align=center>
-  <b>byi</b> i'm a pretty dry texter. i prefer befriending people who can talk about mutual interests. taking inspo is <b>OK!</b> i do not need tonetags. <b>i am happily owned irl & uncomfortable with flirting!</b>
+  <b>byi</b> i'm a pretty dry texter. ask to C+H; i'm usually okay with it. you can always sit around me! i prefer befriending people who can talk about mutual interests. taking inspo is <b>OK!</b> i do not need tonetags. <b>i am happily owned irl & uncomfortable with flirting!</b>
 </p>
 
 ---
