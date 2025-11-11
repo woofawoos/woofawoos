@@ -12,14 +12,19 @@
 
 <p align=center> 
   <b>i am normal about</b> HOUSE MD, machine girl, BIGTOP BURGER, jujutsu kaisen, COMMERCIAL AVIATION, seals (kroshik & yo-chan!), MORAL OREL, mlp:fim, SEVERANCE, succession, pathologic, ONEYPLAYS, h.r giger, game of thrones, DEATH GRIPS, himekaji/agejo/shoujo fashion, all tomorrows, vtubers (korone & snuffy), resident evil, POKEMON, biology, daft punk, terraria, highcraft & HETALIA
-    </p>
+</p>
 
 <p align=center> 
   <b>please</b> speak to me about the capitalized interests above! i've been a hetalia fan for <b>11 years</b> & a pokemon fan for <b>15</b>! house md, bigtop burger & aviation are my current biggest fixations.
-    </p>
+</p>
 
 <p align=center>
-  <b>byi/dni</b> i'm a pretty dry texter. i prefer befriending people who can talk about mutual interests. taking inspo is <b>OK!</b> i do not need tonetags. <b>i am happily owned irl & uncomfortable with flirting!</b>
+  house md, bigtop burger & aviation are my current biggest fixations.
+</p>
+
+<p align=center>
+  <b>byi</b> i'm a pretty dry texter. i prefer befriending people who can talk about mutual interests. taking inspo is <b>OK!</b> i do not need tonetags. <b>i am happily owned irl & uncomfortable with flirting!</b>
+</p>
 
 ---
 
