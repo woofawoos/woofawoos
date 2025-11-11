@@ -15,7 +15,7 @@
 </p>
 
 <p align=center> 
-  <b>please</b> speak to me about the capitalized interests above! i've been a hetalia fan for <b>11 years</b> & a pokemon fan for <b>15</b>! house md, bigtop burger & aviation are my current biggest fixations.
+  <b>please</b> speak to me about the capitalized interests above! i've been a hetalia fan for <b>11 years</b> & a pokemon fan for <b>15</b>!
 </p>
 
 <p align=center>
