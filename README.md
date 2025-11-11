@@ -5,24 +5,22 @@
 ### <p align=center> AWOO | ANY/ALL | ADULT</p>
 
 <p align=center>
-  i mostly play ponytown <b>muted</b> on a secondary monitor so i may accidentally ignore interactions. i will block/hide you if i don't want you to interact with me. usually sitting w/ my owner around spawn or docks. 
+  i leave ponytown on a secondary monitor so i may accidentally ignore interactions. usually sitting w/ my owner around spawn or docks. 
 </p>
 
 ---
 
-<p align=center> 
-  <b>i am normal about</b> <ins>HOUSE MD</ins>, machine girl, wildlife conservation, BIGTOP BURGER, jujutsu kaisen, <ins>COMMERCIAL AVIATION</ins>, seals (kroshik & yo-chan!), <ins>MORAL OREL</ins>, mlp:fim, SEVERANCE, succession, pathologic, ONEYPLAYS, h.r giger, game of thrones, <ins>DEATH GRIPS</ins>, himekaji/agejo/shoujo fashion, all tomorrows, vtubers (korone & snuffy), resident evil, POKEMON, biology, daft punk, PORTAL, terraria, highcraft & HETALIA
-</p>
+  <b>MISC</b> wildlife conservation, natural sciences, commercial aviation, seals, himekaji, biomechanical/biopunk (h.r giger, scorn, godhusk, etc) <br> 
+    <b>MUSIC</b> machine girl, death grips, daft punk, fleetwood mac & cynthoni <br>
+      <b>MEDIA</b> house m.d, bigtop burger, moral orel, barry, severance, succession, better call saul, game of thrones, highcraft, princess mononoke & oneyplays <br> 
+        <b>GAMES</b> monster hunter, pokemon, pathologic: classic, hollow knight, rain world, resident evil, bloodborne, darkwood, halo: reach & portal <br>
 
-<p align=center> 
-  please speak to me about the capitalized interests above! i've been a hetalia fan for <b>11 years</b> & a pokemon fan for <b>15</b>!<br>
-    house md, bigtop burger & aviation are my current biggest fixations.
-</p>
+***
 
 <p align=center>
-  <b>before you interact</b> i'm a pretty dry texter. ask to hide; i'm usually okay with it unless i just want to sit with my partner. you can always sit around me! <br>
-    i prefer befriending people who can talk about mutual interests. i do not need tonetags. <br>
-      taking inspo is <b>OK!</b> i can't stop copiers but i'll block you if you blatantly copy me.
+  <b>BYI</b> i'm a pretty dry & wordy texter. i prefer befriending people who can talk about mutual interests. <br>
+      taking inspo is <b>OK!</b> <br>
+  i'll block you if i don't want you to interact. i almost always block permanently, sorry!
 </p>
 
 <p align=center>
