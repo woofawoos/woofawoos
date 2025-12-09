@@ -5,22 +5,13 @@
 ### <p align=center> HYACINTH/AWOO | ANY/ALL | ADULT</p>
 
 <p align=center>
-  i leave ponytown on a secondary monitor so i may accidentally ignore interactions. usually sitting w/ my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a> around spawn or docks. 
+  i leave ponytown on a secondary monitor so i may accidentally ignore interactions. <br>
+  usually sitting w/ my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a> around spawn idling or making new ponies.
 </p>
 
----
-
-  <b>MISC</b> wildlife conservation, natural sciences, commercial aviation, seals, himekaji, biomechanical/biopunk (h.r giger, scorn, godhusk, etc) <br> 
-    <b>MUSIC</b> machine girl, death grips, daft punk, fleetwood mac & cynthoni <br>
-      <b>MEDIA</b> house m.d, bigtop burger, moral orel, barry, severance, succession, better call saul, game of thrones, highcraft, princess mononoke & oneyplays <br> 
-        <b>GAMES</b> monster hunter, pokemon, pathologic: classic, hollow knight, rain world, resident evil, bloodborne, darkwood, halo: reach & portal <br>
-
-***
-
 <p align=center>
-  <b>BYI</b> i'm a pretty dry & wordy texter. i prefer befriending people who can talk about mutual interests. <br>
       taking inspo is <b>OK!</b> <br>
-  i'll block you if i don't want you to interact. i almost always block permanently, sorry!
+  i'll block you if i don't want you to interact.
 </p>
 
 <p align=center>
