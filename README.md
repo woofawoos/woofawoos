@@ -4,8 +4,6 @@
 
 ### <p align=center> HYACINTH/AWOO | ANY/ALL | ADULT</p>
 
-<p align=center>![](https://komarev.com/ghpvc/?username=woofawoos)</p>
-
 <p align=center>
   i leave ponytown on a secondary monitor so i may accidentally ignore interactions. usually sitting w/ my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a> around spawn or docks. 
 </p>
