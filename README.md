@@ -5,8 +5,8 @@
 ### <p align=center> HYACINTH/AWOO | ANY/ALL | ADULT</p>
 
 <p align=center>
-  i leave ponytown on a secondary monitor so i may accidentally ignore interactions. <br>
-  usually sitting w/ my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a> around spawn idling or making new ponies.
+  i'm usually offtab so i may miss interactions. whisper for a faster response! <br>
+  typically sitting w/ my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a>* around spawn.
 </p>
 
 <p align=center>
@@ -36,3 +36,7 @@
   ![pastel_leopard](https://files.catbox.moe/o783b4.png)
 ![vaporeon2](https://files.catbox.moe/uizrry.gif)
   ![pinkie_roll](https://files.catbox.moe/6xy3pn.gif)
+
+---
+
+<p align=center><sup>* <a href="https://rentry.co/awood">short disclaimer for my usage of the word "owner" because i got harassed over it. (rentry link)</a></sup></p>
