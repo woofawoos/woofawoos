@@ -2,21 +2,19 @@
 
 ![i am not associated with inugami korone, i just like her design!](https://files.catbox.moe/d9obbc.png)
 
-### <p align=center> HYACINTH/AWOO | ANY/ALL | ADULT 🔞 MDNI</p>
+### <p align=center> HYACINTH¹ | ANY/ALL | ADULT 🔞 MDNI</p>
 
 <p align=center>
   i'm usually offtab so i may miss interactions. whisper for a faster response! <br>
-  typically sitting w/ my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a>* around spawn.
+  typically sitting w/ my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a>² around spawn.
 </p>
 
 <p align=center>
-      taking inspo is <b>OK!</b> <br>
   i'll block you if i don't want you to interact.
 </p>
 
 <p align=center>
   <b>i am happily owned irl & uncomfortable with flirting!</b><br>
-<sup>* <a href="https://rentry.co/awood">short disclaimer for my usage of the word "owner" because i got harassed over it. (rentry)</a></sup></p>
 
 ---
 
@@ -38,3 +36,5 @@
   ![pinkie_roll](https://files.catbox.moe/6xy3pn.gif)
 
 ---
+<p>¹⁾ <sup><a href="https://dictionary.cambridge.org/pronunciation/english/hyacinth">hyacinth pronunciation (/ˈhaɪ.ə.sɪnθ/)</a></sup><br>
+²⁾ <sup><a href="https://rentry.co/awood">short disclaimer for my usage of the word "owner" because i got harassed over it. (rentry)</a></sup></p>
