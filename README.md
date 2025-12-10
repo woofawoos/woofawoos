@@ -2,7 +2,7 @@
 
 ![i am not associated with inugami korone, i just like her design!](https://files.catbox.moe/d9obbc.png)
 
-### <p align=center> HYACINTH/AWOO | ANY/ALL | ADULT</p>
+### <p align=center> HYACINTH/AWOO | ANY/ALL | ADULT 🔞 MDNI</p>
 
 <p align=center>
   i'm usually offtab so i may miss interactions. whisper for a faster response! <br>
