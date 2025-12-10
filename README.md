@@ -19,7 +19,6 @@
 <sup>* <a href="https://rentry.co/awood">short disclaimer for my usage of the word "owner" because i got harassed over it. (rentry)</a></sup></p>
 
 ---
-<b>ᡣ𐭩 :</b> himekaji, cynthoni, inugami korone, ffxiv, house md, death grips, lavender (color & scent), my little pony & pokemon
 
 ![momoayase](https://files.catbox.moe/d7wlci.png)
   ![madoka](https://files.catbox.moe/qraaj8.gif)
