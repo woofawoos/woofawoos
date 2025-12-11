@@ -30,4 +30,4 @@
 </p>
 
 ---
-¹⁾ <sup>i'm a pet regressor and use "owner" & "spouse" interchangeably. if this makes you uncomforable, curate your online experience & block me.</sup></p>
+¹⁾ <sup>i use "owner" & "spouse" interchangeably. if this makes you uncomforable, curate your online experience & block me.</sup></p>
