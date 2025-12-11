@@ -5,7 +5,8 @@
 ### <p align=center> HYACINTH | ANY/ALL | ADULT</p>
 
 <p align=center>
-  i'm rarely on ponytown w/o my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a>¹. if i <i>am</i> alone, feel free to interact! i'm probably offtab so W2I! i stay near spawn. <br>
+  i'm rarely on ponytown w/o my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a>¹. if i <i>am</i> alone, feel free to interact! i'm probably offtab so whisper to get my attention! <br>
+  i stay near spawn + i only play on the 18+ server. <br>
   if i'm w/ my spouse i will 15 min hide if you whisper; i want to relax w/ him, not talk to people. no hard feelings! <br>
 </p>
 
