@@ -42,4 +42,4 @@
 
 ---
 <p>¹⁾ <sup><a href="https://dictionary.cambridge.org/pronunciation/english/hyacinth">hyacinth pronunciation (/ˈhaɪ.ə.sɪnθ/)</a></sup><br>
-²⁾ <sup>i am a pet regressor & find comfort in this relationship dynamic. owner means spouse to me. if this makes you uncomfortable, curate your online space and block me.</sup></p>
+²⁾ <sup>i am a pet regressor & find comfort in this relationship dynamic. "owner" means the same as "spouse" to me. if this makes you uncomfortable, curate your online space and block me instead of harassing me.</sup></p>
