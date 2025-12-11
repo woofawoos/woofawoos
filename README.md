@@ -5,16 +5,16 @@
 ### <p align=center> HYACINTH¹ | ANY/ALL | ADULT 🔞 MDNI</p>
 
 <p align=center>
-  i'm usually offtab so i may miss interactions. whisper for a faster response! <br>
-  typically sitting w/ my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a>² around spawn.
+  i'm rarely on ponytown without my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a>². if i <i>am</i> alone, feel free to interact! i'm probably offtab so whisper please. <br>
+  if i'm with my spouse i will 15 min hide interactions; i want to relax w/ him, not talk to people. no hard feelings!
 </p>
 
 <p align=center>
-  i'll block you if i don't want you to interact.
+  i'll block you if i don't want you to interact. no specific "dni" other than HH/HB/roblox skins.
 </p>
 
 <p align=center>
-  <b>i am happily owned irl & uncomfortable with flirting!</b><br>
+  <b>i am happily owned <i>irl</i> & uncomfortable with flirting!</b><br>
 
 ---
 
@@ -37,4 +37,4 @@
 
 ---
 <p>¹⁾ <sup><a href="https://dictionary.cambridge.org/pronunciation/english/hyacinth">hyacinth pronunciation (/ˈhaɪ.ə.sɪnθ/)</a></sup><br>
-²⁾ <sup><a href="https://rentry.co/awood">short disclaimer for my usage of the word "owner" because i got harassed over it. (rentry)</a></sup></p>
+²⁾ <sup>i am a pet regressor & find comfort in this relationship dynamic. owner means spouse to me. if this makes you uncomfortable, curate your online space and block me.</sup></p>
