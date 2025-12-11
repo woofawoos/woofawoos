@@ -17,28 +17,17 @@
 
 <p align=center>
   <b>i am happily owned <i>irl</i> & uncomfortable with flirting!</b><br>
+</p>
 
 <p align=center>
-  🔞 MDNI | ✅: WHISPER IF I'M ALONE, TOUCH INTERACTIONS, INSPO | 🚫: C+H, COPY, RANDOM FRQS, WHISPER IF I'M W/ SPOUSE</p>
+  🔞 MDNI | ✅: WHISPER IF I'M ALONE, TOUCH INTERACTIONS, INSPO | 🚫: C+H, COPY, RANDOM FRQS, WHISPER IF I'M W/ SPOUSE
+</p>
 
 ---
 
-![momoayase](https://files.catbox.moe/d7wlci.png)
-  ![madoka](https://files.catbox.moe/qraaj8.gif)
-    ![stockingpaswg_hearts](https://files.catbox.moe/5c4d6i.gif)
-      ![umbreon_sylveon](https://files.catbox.moe/rby6a0.gif)
-        ![espurr](https://files.catbox.moe/r1gsru.png)
-          ![pastel_pink_glitter](https://files.catbox.moe/nhvnfs.gif)
-            ![sylveon1](https://files.catbox.moe/br5udb.gif)
-              ![sylveon2](https://files.catbox.moe/uwgvo8.gif)
-            ![anime_pastel_cherryblossoms](https://files.catbox.moe/1nhgkv.gif)
-          ![ginga](https://files.catbox.moe/g8capd.png)
-        ![punchy](https://files.catbox.moe/fq82my.png)
-      ![pastel_rainbow_blue](https://files.catbox.moe/xcuxfw.png)
-    ![anime_water_ripple](https://files.catbox.moe/k4be0b.gif)
-  ![pastel_leopard](https://files.catbox.moe/o783b4.png)
-![vaporeon2](https://files.catbox.moe/uizrry.gif)
-  ![pinkie_roll](https://files.catbox.moe/6xy3pn.gif)
+<p align=center>
+  <b>REWORKING STAMP SECTION!</b>
+</p>
 
 ---
 <p>¹⁾ <sup><a href="https://dictionary.cambridge.org/pronunciation/english/hyacinth">hyacinth pronunciation (/ˈhaɪ.ə.sɪnθ/)</a></sup><br>
