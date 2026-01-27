@@ -5,30 +5,22 @@
 ### <p align=center> HYACINTH | ANY/ALL | ADULT</p>
 
 <p align=center>
-  i'm rarely on ponytown w/o my <a href="https://github.com/JimmyWingoo" target="_blank">owner</a>¹. if i <i>am</i> alone, feel free to interact! i'm probably offtab so whisper to get my attention! <br>
-  i stay near spawn + i only play on the 18+ server. <br>
-  if i'm w/ my spouse i will 15 min hide if you whisper; i want to relax w/ him, not talk to people. no hard feelings! <br>
+  i'm rarely on ponytown w/o my <a href="https://github.com/JimmyWingoo" target="_blank">spouse</a>. i'm probably offtab so whisper to get my attention! <br>
+  i stay near spawn + i only play on the 18+ server.
 </p>
 
 ***
 
 <p align=center>
-  i'll block you if i don't want you to interact. no specific "dni" other than HH/HB/roblox skins.
+  i'll block you if i don't want you to interact! 
 </p>
 
 <p align=center>
-  <b>i am happily owned <i>irl</i> & uncomfortable with flirting!</b><br>
+  <b>i am happily owned IRL & uncomfortable with flirting!</b><br>
 </p>
 
 <p align=center>
-  🔞 MDNI | ✅: WHISPER IF I'M ALONE, TOUCH INTERACTIONS, INSPO | 🚫: C+H, COPY, RANDOM FRQS, WHISPER IF I'M W/ SPOUSE
+  🔞 MDNI | ✅: WHISPER, TOUCH INTERACTIONS, INSPO, HIDE | 🚫: COVER, COPY, RANDOM FRQS 
 </p>
-
----
-
-<p align=center>
-  <b>REWORKING STAMP SECTION SORRY FOLKS NO SHAPES AND COLORS RN</b>
-</p>
-
----
-¹⁾ <sup>i use "owner" & "spouse" interchangeably. if this makes you uncomforable, curate your online experience & block me.</sup></p>
+ 
+ 
