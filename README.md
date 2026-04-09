@@ -12,10 +12,6 @@
 ***
 
 <p align=center>
-  i'll block you if i don't want you to interact! 
-</p>
-
-<p align=center>
   🔞 MDNI | ✅: WHISPER, TOUCH INTERACTIONS, INSPO | 🚫: COPY, RANDOM FRQS 
 </p>
  
