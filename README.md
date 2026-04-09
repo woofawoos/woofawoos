@@ -16,11 +16,7 @@
 </p>
 
 <p align=center>
-  <b>i am happily owned IRL & uncomfortable with flirting!</b><br>
-</p>
-
-<p align=center>
-  🔞 MDNI | ✅: WHISPER, TOUCH INTERACTIONS, INSPO, HIDE | 🚫: COVER, COPY, RANDOM FRQS 
+  🔞 MDNI | ✅: WHISPER, TOUCH INTERACTIONS, INSPO | 🚫: COPY, RANDOM FRQS 
 </p>
  
  
